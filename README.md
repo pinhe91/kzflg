@@ -1,5 +1,7 @@
 ![FUPn_qDaUAETrVY](https://user-images.githubusercontent.com/79625284/176864447-0f7d5ef8-51b8-47a8-a904-612e65633f17.png)
 
+![ErwsidbVEAABA1dw](https://user-images.githubusercontent.com/79625284/176870496-b1932a9d-db54-4a9d-abdd-067619f1edb2.jpg)
+
 ### 基督教的神点悟信徒快找寻法轮功
 
 文: 中国黑龙江大法弟子　真心 
